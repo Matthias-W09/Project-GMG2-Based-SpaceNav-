@@ -8,3 +8,10 @@ https://drive.google.com/drive/folders/1SwYBDismdFmhRTu7TucKB6UENiygpa3m?usp=sha
 
 ### Game Alpaca Final
 https://drive.google.com/drive/folders/1uMlhOQA2ZEzK6E-6YUzsxjGkqwjSoA-d?usp=sharing 
+
+
+
+## Integrantes:
+- Javier Donetch 
+- Luciano Fredes
+- Matias Romero
